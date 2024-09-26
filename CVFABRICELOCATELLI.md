@@ -8,3 +8,4 @@ TAI Technicien Assistance en Informatique [**COS/CRPF**](https://www.cosformatio
 **PAKAO**  **IT**  **SERVICES** : _Installations_ _diverses_  _matériel_ _informatique_.
 #### Hobbies :
 _Marche_ [ _Théâtre_ _d'Improvisation_](https://les-denatures-theatre-dimprovisation.jimdosite.com/) 
+![DSC03055](https://github.com/user-attachments/assets/fcaf57ca-93d8-4d8c-8e36-5ceb68985358)
