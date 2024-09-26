@@ -1,2 +1,2 @@
 # co-form
-formalité Wildcode
+Projet fictif
